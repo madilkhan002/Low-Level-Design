@@ -1,1 +1,1 @@
-![social_media](https://github.com/madilkhan002/Low-Level-Design/assets/75298232/2e885cce-c17e-4fec-b790-66121f6d1839)
+![social_media](https://github.com/madilkhan002/Low-Level-Design/assets/75298232/a44bf966-5f9a-4b7d-bdc9-8092dc34ee97)
